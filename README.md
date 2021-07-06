@@ -14,6 +14,8 @@
 
 얼린 요거트 사진 눌렀을 때
 
+![image](https://user-images.githubusercontent.com/70693435/124615916-9fb54700-deb0-11eb-9127-c9298b0de39d.png)
+
 
 
 
