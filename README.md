@@ -10,6 +10,12 @@
 
 아이스크림 사진 눌렀을 때 
 
+![image](https://user-images.githubusercontent.com/70693435/124615753-84e2d280-deb0-11eb-9477-940f1697184d.png)
+
+얼린 요거트 사진 눌렀을 때
+
+
+
 
 
 
